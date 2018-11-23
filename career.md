@@ -4,7 +4,7 @@
 
 ### 包玉刚国际学校
 [官网](www.ykpaoschool.cn/Educators-cn)
-注：填写职位申请表，联通建立发送至:joinus@ykpaoschool.cn
+注：填写职位申请表，连同简历发送至:joinus@ykpaoschool.cn
 
 ### 上海民办东方外国语学校
 来源：猎聘网、智联
