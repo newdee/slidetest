@@ -35,4 +35,4 @@
 #### 最后，祝小晚秋找到心仪的OFFER，咬牙坚持，加油！
 
 **SHE IS WATCHING YOU**  
-![](https://images.gitee.com/uploads/images/2018/1123/211115_60f8254f_1449449.jpeg)
+![](https://user-images.githubusercontent.com/12610440/48945294-c5da8280-ef64-11e8-88e6-007b5876ac4c.jpg)
