@@ -33,5 +33,6 @@
 万行教室人才网上招聘信息中，邮箱地址为：xiwaijwc@163.com (陈老师)
 
 #### 最后，祝小晚秋找到心仪的OFFER，咬牙坚持，加油！
-**SHE IS WATCHING YOU**
+
+**SHE IS WATCHING YOU**  
 ![](https://images.gitee.com/uploads/images/2018/1123/211115_60f8254f_1449449.jpeg)
