@@ -3,7 +3,7 @@
 [看准网](https://www.kanzhun.com/gso1808946.html)
 
 ### 包玉刚国际学校
-[官网](https://www.ykpaoschool.cn/Educators-cn)
+[官网](http://www.ykpaoschool.cn/Educators-cn)
 注：填写职位申请表，连同简历发送至:joinus@ykpaoschool.cn
 
 ### 上海民办东方外国语学校
